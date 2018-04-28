@@ -8,4 +8,4 @@ Starting Friday, April 27th 2018, Exchange bees will be putting out a weekly new
 
 Here at EXB we are not just building a platform, we are providing all the fundamental building blocks for a global community of beekeepers united through EXB. Today technology allows us to have a constant source of information whenever and wherever you are. However, not every source gives dependable and useful information. We strive to provide a credible source for the beekeeping industry to find information, research, data, and recent events within the beekeeping-agricultural industry. The topics for each weekly newsletter based on events relevant to beekeeping and agriculture. We look forward to sharing the experience of this journey with you, the Exchange Bees community.
 
-![EXB Logo](https://imgur.com/a/xLVBeGD)
+![EXB Logo](https://imgur.com/8Rv62A0)
